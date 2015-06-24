@@ -1,0 +1,1 @@
+Welcome to the Ogar wiki! if you want more stuff down load mods I might find a way to tell agarios maker and ask how to download mods and these are the skin names doge sanik modmario and luigi qing daynasty mod pika mod pacman nasa earth moon piccolo quebec bait turkey usa mars Satanist yaranika reddit china 4chan hitler kc steam ussr 
