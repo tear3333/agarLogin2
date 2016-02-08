@@ -1,2 +1,2 @@
-<div style="float: right"><img align="right" src="http://ogarproject.com/styles/flexile/flexile/OgarLogo.png"></div>
+<div style="float: right"><img align="center" src="http://ogarproject.com/styles/flexile/flexile/OgarLogo.png"></div>
 Welcome to the **Ogar** wiki!
